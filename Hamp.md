@@ -7,7 +7,7 @@ Got it! Here's the version with the school names censored in the manner you've r
 **These Titles and Achievements:**
 
 1. ██████gsskolan Legend (late 2019 to present) • Self-proclaimed Title
-   My first "Legend" title, self-bestowed, of course.
+   <br> My first "Legend" title, self-bestowed, of course.
    I still fuckin' know I got it.
    I screamed my name threwout the school in 2017, I think and people learned it
    When I left, for two years after, I was known by everyone.
@@ -18,7 +18,7 @@ Got it! Here's the version with the school names censored in the manner you've r
    If you don’t believe me, well, that’s on you.
    My genius, my legend. ███.
 2. ██████dsskolan Legend (late 2023 to present) • Self-proclaimed Title
-   Got this one through a bit of a cheat, if I’m being honest.
+   <br> Got this one through a bit of a cheat, if I’m being honest.
    My class and I left in grade 5, the only grade ever leave at grade 5 at that school.
    Then I came to in late 2019 for grade 6 at ██████dsskolan, completely different school, but hey, still counts.
    I did my thing, became a legend, and left my mark.
