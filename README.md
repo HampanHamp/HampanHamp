@@ -43,7 +43,7 @@ Hampan Hamp has made several notable statements about his life philosophy, inclu
 - "I know myself, but I don’t know others; time to find new, please."
 
 ## Info About the others
-[REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) and [HampanHamp](https://www.x.com/HampanHamp) 's account is private and [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) and [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) and [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) is public.
+[REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) and [HampanHamp](https://www.x.com/HampanHamp)'s account is private and [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) and [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) and [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) is public.
 [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) linked via [X](https://www.x.com/X)
 [HampanHamp](https://www.x.com/HampanHamp) linked via [X](https://www.x.com/X)
 [REDACTED](https://www.youtube.com/watch?v=dQw4w9WgXcQ) linked via [Instagram](https://www.youtube.com/watch?v=dQw4w9WgXcQ) account.
