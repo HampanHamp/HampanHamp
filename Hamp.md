@@ -28,36 +28,6 @@ Got it! Here's the version with the school names censored in the manner you've r
    <br> My legend’s still real, even if the way I got it isn’t – at least in my own twisted, "authorized" opinion.
    <br> And honestly, that legacy? That’s what matters. ███.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-5. **██████dsskolan Legend (late 2023 to present)** • *Self-proclaimed Title*  
-   The second "Legend" title, slightly newer and more jaded.  
-   Means nothing to anyone but me.  
-   But I get to say it, so it counts, right?  
-   Legends are made, not born.  
-   At least, in my head. ███.
-6. **Hampan Hamp (2016 to present)** • *Ceremonial Self-proclaimed Title*  
-   Ah, and here we are. Hampan Hamp. It’s not quite as glamorous as it sounds, because let’s face it, the title is entirely self-bestowed. But if there’s one thing I’ve learned, it’s that *someone* needs to give me the credit I deserve, and why not be that someone? So, for all intents and purposes, consider this my very ceremonial, grandiose title—given to myself, by myself. No one else has ever called me that, and that’s the way I like it. I won’t dox myself. If you’re curious, good luck.
-
-7. **Co-Founder of Halux Galaxy (2013 to present)** • *Founder of a fictional world*  
-   And, just in case you thought things couldn’t get more ridiculous, here we are. Halux Galaxy—a place that exists only in my mind (and maybe a few hastily written notes). I co-founded this fictional world, or at least I tell myself I did. Maybe one day it’ll be something bigger than a pipe dream. Or maybe it won’t. But it sounds cool, so I’ll claim it, because why the hell not? ███. But again, don’t bother me with specifics. I won’t dox myself.
-
----
-
 **The Explanation:**
 
 I won’t dox myself. I won’t subject myself to the cringy reality of revealing more about my less-than-glamorous educational past. The names are censored for a reason—because frankly, I’m too paranoid to let them slip, and also, I don’t think anyone really cares where I went. 
