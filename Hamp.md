@@ -19,10 +19,20 @@ Got it! Here's the version with the school names censored in the manner you've r
    My genius, my legend. ███.
 2. ██████dsskolan Legend (late 2023 to present) • Self-proclaimed Title
    <br> Got this one through a bit of a cheat, if I’m being honest.
-   <br> My class and I left in grade 5 from ██████gsskolan the only grade ever leave at grade 5 at that school to ██████dsskolan Legend.
-   <br> Then We came to in late 2019 for grade 6 at ██████dsskolan, but hey, still counts to have a big chunk know you I said I proclaimed it and I got it.
-   <br> I did my thing, became a legend, and left my mark. The thing is, this one’s a cheat – a title built on having my class who knew join the same school as me joining it.
-   <br> But hey, who needs the truth when you can have a legacy? My legend and its title is real, even if the way I got it isn’t its kinda against it in my authorized opinion. ███.
+   <br> My class, 5A (or was it 5B? Honestly, who remembers those letters?) and I, left ██████gsskolan in grade 5 – the only grade I ever left there.
+   <br> We then rolled into ██████dsskolan in late 2019 for grade 6.
+   <br> But here’s the kicker – I had a whole bunch of people who already knew me from before, so it kinda just counts, right?
+   <br> I claimed the title, threw my name into every Snapchat group, and said, "This is it. I’m Hampan Hamp now."
+   <br> I became a legend in that school, even if it was built on my class joining me and my proclamation.
+   <br> Sure, it’s a cheat, and yeah, maybe it’s not entirely earned. But who cares?
+   <br> My legend’s still real, even if the way I got it isn’t – at least in my own twisted, "authorized" opinion.
+   <br> And honestly, that legacy? That’s what matters. ███.
+
+
+
+
+
+
 
 
 
