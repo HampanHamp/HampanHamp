@@ -19,12 +19,10 @@ Got it! Here's the version with the school names censored in the manner you've r
    My genius, my legend. ███.
 2. ██████dsskolan Legend (late 2023 to present) • Self-proclaimed Title
    <br> Got this one through a bit of a cheat, if I’m being honest.
-   My class and I left in grade 5, the only grade ever leave at grade 5 at that school.
-   Then I came to in late 2019 for grade 6 at ██████dsskolan, completely different school, but hey, still counts.
-   I did my thing, became a legend, and left my mark.
-   The thing is, this one’s a cheat – a title built on having my class who knew join the same school as me joining it.
-   But hey, who needs the truth when you can have a legacy?
-   My legend and its title is real, even if the way I got it isn’t its kinda against it in my authorized opinion. ███.
+   <br> My class and I left in grade 5 from ██████gsskolan the only grade ever leave at grade 5 at that school to ██████dsskolan Legend.
+   <br> Then We came to in late 2019 for grade 6 at ██████dsskolan, but hey, still counts to have a big chunk know you I said I proclaimed it and I got it.
+   <br> I did my thing, became a legend, and left my mark. The thing is, this one’s a cheat – a title built on having my class who knew join the same school as me joining it.
+   <br> But hey, who needs the truth when you can have a legacy? My legend and its title is real, even if the way I got it isn’t its kinda against it in my authorized opinion. ███.
 
 
 
