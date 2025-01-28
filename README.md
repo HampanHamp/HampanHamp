@@ -4,7 +4,7 @@ Written by [Hampan Hamp](https://www.youtube.com/@HampanHamp). <br>
 © 2024 Hampan Hamp All Rights Reserved. Changing is not permitted
 
 **[Hampan Hamp](https://www.youtube.com/@HampanHamp)** is a Swedish entrepreneur, historical enthusiast, polymath, and author known for his extensive business ventures and his role as the founder and Executive Chairman of the [Hampish Order of Self-Proclaimed Titles]. Over his career, he has amassed considerable wealth, allowing him to pursue various eccentric interests and establish a persona characterized by his love of history, vintage style, and a distinctly Victorian flair. He is also active online under the username [@HampanHamp](https://www.x.com/HampanHamp) 
-on [X]. [Hampan Hamp] also formed [Hampsoft] 
+on [X](https://x.com). [Hampan Hamp](https://www.youtube.com/@HampanHamp) also formed [Hampsoft](https://www.youtube.com/watch?v=dQw4w9WgXcQ), a tech company which is currently unactive 
 
 ## Early Life and Background
 
